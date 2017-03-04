@@ -2,7 +2,9 @@
 
 Questions? 
 Contact me on:
-https://www.reddit.com/user/CodeQuestions__/
-Visualsnowsub@googlemail.com
+
+Reddit: https://www.reddit.com/user/CodeQuestions__/
+
+Email: Visualsnowsub@googlemail.com
 
 Thank you, Codequestions__
